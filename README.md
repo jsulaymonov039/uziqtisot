@@ -1,0 +1,1 @@
+##O'zbekiston yalpi ichi mahsulot
