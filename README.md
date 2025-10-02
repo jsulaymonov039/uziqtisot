@@ -1,1 +1,1 @@
-##O'zbekiston yalpi ichi mahsulot
+# O'zbekiston yalpi ichi mahsulot haqida statiska qilindi
